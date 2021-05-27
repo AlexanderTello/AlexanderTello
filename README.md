@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AlexanderTello
+- 👀 I’m interested in fiscal policy and epidemiology
+- 🌱 I’m currently learning python
