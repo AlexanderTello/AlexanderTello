@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @AlexanderTello
-I’m interested in macroeconomics fiscal policy
+I’m interested in macroeconomics and fiscal policy
